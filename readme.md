@@ -1,0 +1,1 @@
+A smore is a sandwich with sweets inside it.
